@@ -14,7 +14,6 @@ I wrote my first poem at age 10 and my first full manuscript at 12. Over the pas
 
 - Published author of **1,500+ books** across every major genre
 - **Amazon bestseller** in India, USA, and UK
-- Invited to speak at **Stanford University**
 - Founded **Authorva Private Limited** (Startup India recognized, MSME & ZED certified)
 - **Wikidata profile**: [Q137016935](https://www.wikidata.org/wiki/Q137016935)
 
